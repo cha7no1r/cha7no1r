@@ -2,4 +2,4 @@
 
 dont read me, pls. 
 
-Discord: same
+Discord: i don't think so, but it's the same
